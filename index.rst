@@ -3,9 +3,9 @@
 
 REGARDER] Venom: Let There Be Carnage (2021) Film Streaming Online VF Complet HD,Regarder Regarder Venom: Let There Be Carnage (2021) film complet Regarder!! Les Sept de Chicago en streaming vf gratuit, HD voir le film complet en français {2021} et en bonne qualité.
 
-`░░▒▓██►REGARDER Venom: Let There Be Carnage Streaming VF (2021)<https://t.co/RHkzobnWEh?amp=1>`_
+`░░▒▓██►REGARDER Venom: Let There Be Carnage Streaming VF (2021) <https://t.co/RHkzobnWEh?amp=1>`_
 
-`░░▒▓██►TÉLÉCHARGER Venom: Let There Be Carnage Film Complet (2021)<https://t.co/RHkzobnWEh?amp=1>`_
+`░░▒▓██►TÉLÉCHARGER Venom: Let There Be Carnage Film Complet (2021) <https://t.co/RHkzobnWEh?amp=1>`_
 
 18 août 2021 en salle / 1h 44min / Thriller, Policier De Cédric Jimenez Par Cédric Jimenez, Audrey Diwan Avec Gilles Lellouche, François Civil, Karim Leklou
 
